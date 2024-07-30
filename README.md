@@ -2,7 +2,7 @@
 
 Il y a 9 secondes — Le Comte de Monte-Cristo Disponibles en streaming complet et illimité, en VF ou VOSTFR 100% gratuit, sans abonnement ni inscription. Voir le film complet en français et en bonne qualité.
 
-***Regarder :|✮☛ https://getroku.xyz/fr/1084736/the-count-of-monte-cristo.html***
+***Regarder :|✮☛ https://getroku.xyz/fr/1084736/the-count-of-monte-cristo***
 
 Le Comte de Monte-Cristo est un film français réalisé par Alexandre de La Patellière et Matthieu Delaporte, sorti en 2024. Il s'agit d'une adaptation du roman du même nom d'Alexandre Dumas. Son producteur, Dimitri Rassam, est à l'origine de l'adaptation d'un autre célèbre roman de Dumas avec le diptyque Les Trois Mousquetaires : D'Artagnan et Les Trois Mousquetaires : Milady (2023). Pierre Niney y incarne Edmond Dantès, jeune marin de 22 ans, débarquant à Marseille pour s’y fiancer avec Mercédès Herrera et devenir capitaine. Trahi par des amis jaloux, il est dénoncé comme conspirateur bonapartiste et enfermé au château d'If. Après quatorze années de détention, il s’évade et prend possession d’un trésor caché dans l’île de Montecristo. Il se venge de tous ceux qui l’ont accusé à tort.
 
